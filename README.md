@@ -8,7 +8,7 @@ meu nome é iris estara faria
 
 - ### você entrar em contato comigo 📧
 
-- aiafsiri2002@gmail.com
+- 0001075410046sp@al.educacao.sp.gov.br
 
 - eh.iris_estara
 
